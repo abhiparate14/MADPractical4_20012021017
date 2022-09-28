@@ -1,0 +1,11 @@
+# MADPractical4_20012021017
+![image](https://user-images.githubusercontent.com/74175413/192802769-5c754e56-f7f1-4dd6-a015-303df22f3c9d.png)
+![image](https://user-images.githubusercontent.com/74175413/192802791-30c3cfb7-e568-4a22-be56-8fc4b88527df.png)
+![image](https://user-images.githubusercontent.com/74175413/192802811-7a495f8b-f8ab-46ca-a7ef-d94098b60d69.png)
+![image](https://user-images.githubusercontent.com/74175413/192802826-a67941e5-a05c-4d94-8e73-2169be75498d.png)
+![image](https://user-images.githubusercontent.com/74175413/192802842-fbe834ff-c930-4a4e-b373-a352e2928a2f.png)
+![image](https://user-images.githubusercontent.com/74175413/192802851-d7b01c71-97bb-490f-9948-e18a504a56fb.png)
+![image](https://user-images.githubusercontent.com/74175413/192802864-3b2dbad9-f3d4-4f3d-bdde-f314c47f1324.png)
+![image](https://user-images.githubusercontent.com/74175413/192802937-cd6369c6-076f-4ade-a00a-46bfd8e3ab70.png)
+![image](https://user-images.githubusercontent.com/74175413/192802955-afa8168f-e9b5-4741-a140-13af58789007.png)
+![image](https://user-images.githubusercontent.com/74175413/192802966-6c4b5c52-ca88-4ddd-a433-ce987f922c9e.png)
